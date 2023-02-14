@@ -4,3 +4,6 @@
 ![dogetestTEST](https://user-images.githubusercontent.com/118585642/216822751-58e3c165-a279-43ec-8adc-bd5b5ca6097f.jpg)
 ![dogetestTEST copy](https://user-images.githubusercontent.com/118585642/216823047-8854f4b9-4f13-426d-a131-a12159e249c2.png)
 ![Valentine2023](https://user-images.githubusercontent.com/118585642/218884225-9ae61674-c84b-4927-a67e-a3abd15c4017.gif)
+![valentines copy](https://user-images.githubusercontent.com/118585642/218884880-b877f87c-4519-4fe6-a38b-30a21ae04f37.png)
+![valentines](https://user-images.githubusercontent.com/118585642/218884893-2e038903-c38d-4176-b177-5b44404c602a.png)
+![valentiness](https://user-images.githubusercontent.com/118585642/218884896-58d7e96a-bec4-4064-a348-2d9d5c662410.png)
