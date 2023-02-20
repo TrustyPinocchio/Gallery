@@ -7,3 +7,5 @@
 ![valentines copy](https://user-images.githubusercontent.com/118585642/218884880-b877f87c-4519-4fe6-a38b-30a21ae04f37.png)
 ![valentines](https://user-images.githubusercontent.com/118585642/218884893-2e038903-c38d-4176-b177-5b44404c602a.png)
 ![valentiness](https://user-images.githubusercontent.com/118585642/218884896-58d7e96a-bec4-4064-a348-2d9d5c662410.png)
+![48x48](https://user-images.githubusercontent.com/118585642/220174141-58b78860-b773-46f7-bfe8-d9c6fcbf2295.png)
+![FAUXMINER](https://user-images.githubusercontent.com/118585642/220174148-b412af2f-dfe9-44f6-a7fb-db8fece79e05.png)
