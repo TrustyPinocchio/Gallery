@@ -10,3 +10,4 @@
 ![48x48](https://user-images.githubusercontent.com/118585642/220174141-58b78860-b773-46f7-bfe8-d9c6fcbf2295.png)
 ![FAUXMINER](https://user-images.githubusercontent.com/118585642/220174148-b412af2f-dfe9-44f6-a7fb-db8fece79e05.png)
 <img width="200" alt="HUNDREDXCP copy" src="https://user-images.githubusercontent.com/118585642/222320319-df1fabcb-5ea4-49b6-8c8b-355c5d01b92c.png">
+![HUNDREDXCP 48x48](https://user-images.githubusercontent.com/118585642/222326094-f517c20e-73be-47f2-9ef4-5b4d637aa215.png)
