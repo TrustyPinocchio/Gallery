@@ -13,3 +13,4 @@
 ![HUNDREDXCP 48x48](https://user-images.githubusercontent.com/118585642/222326094-f517c20e-73be-47f2-9ef4-5b4d637aa215.png)
 ![48x48](https://user-images.githubusercontent.com/118585642/229198703-315a115a-0310-449e-b482-ae0181291467.png)
 ![RUDECUM](https://user-images.githubusercontent.com/118585642/229198706-c6c6c77d-3473-4a75-89e8-cdde34444904.gif)
+![RUDECUM800x1120](https://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-b862-ef620cc32512.gif)
