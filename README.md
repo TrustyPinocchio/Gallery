@@ -14,3 +14,5 @@
 ![48x48](https://user-images.githubusercontent.com/118585642/229198703-315a115a-0310-449e-b482-ae0181291467.png)
 ![RUDECUM](https://user-images.githubusercontent.com/118585642/229198706-c6c6c77d-3473-4a75-89e8-cdde34444904.gif)
 ![RUDECUM800x1120](https://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-b862-ef620cc32512.gif)
+![CASSOPEPE 400x560](https://user-images.githubusercontent.com/118585642/230794136-43609403-ac0e-4372-8734-6b29ee1a5e59.gif)
+![CASSOPEPE 48x48](https://user-images.githubusercontent.com/118585642/230794163-2be1e21a-0cda-48c8-a121-bd7248932c8a.png)
