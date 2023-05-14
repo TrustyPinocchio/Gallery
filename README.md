@@ -20,3 +20,6 @@ ttps://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-
 ![RAYCBOY RAREPEPE 400x560](https://github.com/tp-7/Gallery/assets/118585642/49c845ae-7a37-49e8-bb24-190aeb28a24e)
 ![RAYCBOY RAREPEPE](https://github.com/tp-7/Gallery/assets/118585642/d19bdf48-2196-4700-892d-d5bee852c970)
 ![RAYCBOY RAREPEPE 48x48](https://github.com/tp-7/Gallery/assets/118585642/3d998f0a-ac34-471f-85d0-87f4ba4d3393)
+![RAYCBOY FAKERARE](https://github.com/tp-7/Gallery/assets/118585642/9fefc53a-9d9d-4019-9b09-337fea442c02)
+![RAYCBOY FAKERARE 400x560](https://github.com/tp-7/Gallery/assets/118585642/435c22ad-ed7e-4b1d-9a26-76751ce8d7f2)
+![RAYCBOY FAKERARE 48x48](https://github.com/tp-7/Gallery/assets/118585642/1de05f9b-d512-4d52-86e8-a2c8ad22e825)
