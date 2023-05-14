@@ -17,6 +17,6 @@
 ttps://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-b862-ef620cc32512.gif)
 ![CASSOPEPE 400x560](https://user-images.githubusercontent.com/118585642/230794136-43609403-ac0e-4372-8734-6b29ee1a5e59.gif)
 ![CASSOPEPE 48x48](https://user-images.githubusercontent.com/118585642/230794163-2be1e21a-0cda-48c8-a121-bd7248932c8a.png)
-![Uploading RAYCBOY.RAREPEPE 48x48.png…]()
 ![RAYCBOY RAREPEPE 400x560](https://github.com/tp-7/Gallery/assets/118585642/49c845ae-7a37-49e8-bb24-190aeb28a24e)
 ![RAYCBOY RAREPEPE](https://github.com/tp-7/Gallery/assets/118585642/d19bdf48-2196-4700-892d-d5bee852c970)
+![RAYCBOY RAREPEPE 48x48](https://github.com/tp-7/Gallery/assets/118585642/3d998f0a-ac34-471f-85d0-87f4ba4d3393)
