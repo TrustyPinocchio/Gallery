@@ -9,12 +9,12 @@
 ![valentiness](https://user-images.githubusercontent.com/118585642/218884896-58d7e96a-bec4-4064-a348-2d9d5c662410.png)
 ![48x48](https://user-images.githubusercontent.com/118585642/220174141-58b78860-b773-46f7-bfe8-d9c6fcbf2295.png)
 ![FAUXMINER](https://user-images.githubusercontent.com/118585642/220174148-b412af2f-dfe9-44f6-a7fb-db8fece79e05.png)
-<img width="200" alt="HUNDREDXCP copy" src="https://user-images.githubusercontent.com/118585642/222320319-df1fabcb-5ea4-49b6-8c8b-355c5d01b92c.png">
+
 ![HUNDREDXCP 48x48](https://user-images.githubusercontent.com/118585642/222326094-f517c20e-73be-47f2-9ef4-5b4d637aa215.png)
 ![48x48](https://user-images.githubusercontent.com/118585642/229198703-315a115a-0310-449e-b482-ae0181291467.png)
 ![RUDECUM](https://user-images.githubusercontent.com/118585642/229198706-c6c6c77d-3473-4a75-89e8-cdde34444904.gif)
 ![RUDECUM800x1120](h![RAYCBOY RAREPEPE 48x48](https://github.com/tp-7/Gallery/assets/118585642/845ad647-03e1-4036-8466-bec90387f490)
-(https://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-b862-ef620cc32512.gif)
+
 ![CASSOPEPE 400x560](https://user-images.githubusercontent.com/118585642/230794136-43609403-ac0e-4372-8734-6b29ee1a5e59.gif)
 ![CASSOPEPE 48x48](https://user-images.githubusercontent.com/118585642/230794163-2be1e21a-0cda-48c8-a121-bd7248932c8a.png)
 ![RAYCBOY RAREPEPE 400x560](https://github.com/tp-7/Gallery/assets/118585642/49c845ae-7a37-49e8-bb24-190aeb28a24e)
@@ -28,5 +28,5 @@
 ![RAYC VVD 48x48](https://github.com/tp-7/Gallery/assets/118585642/71258d0a-9d6e-436e-947e-fb6551dda6b1)
 ![ICEDUNICORN 48x48](https://github.com/tp-7/Gallery/assets/118585642/d33c45be-911a-49f4-b5e5-c52a6369697a)
 ![ICEDUNICORN](https://github.com/tp-7/Gallery/assets/118585642/e7daa9e0-2b61-4ecc-83ef-5ca6fa459690)
-
-
+("https://user-images.githubusercontent.com/118585642/222320319-df1fabcb-5ea4-49b6-8c8b-355c5d01b92c.png">)
+(https://user-images.githubusercontent.com/118585642/229259169-cc8d07fb-9c9a-4713-b862-ef620cc32512.gif)
