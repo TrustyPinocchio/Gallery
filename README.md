@@ -12,7 +12,7 @@
 ![HUNDREDXCP 48x48](https://user-images.githubusercontent.com/118585642/222326094-f517c20e-73be-47f2-9ef4-5b4d637aa215.png)
 ![48x48](https://user-images.githubusercontent.com/118585642/229198703-315a115a-0310-449e-b482-ae0181291467.png)
 ![RUDECUM](https://user-images.githubusercontent.com/118585642/229198706-c6c6c77d-3473-4a75-89e8-cdde34444904.gif)
-![RUDECUM800x1120](h![RAYCBOY RAREPEPE 48x48](https://github.com/tp-7/Gallery/assets/118585642/845ad647-03e1-4036-8466-bec90387f490)
+![RAYCBOY RAREPEPE 48x48](https://github.com/tp-7/Gallery/assets/118585642/845ad647-03e1-4036-8466-bec90387f490)
 ![CASSOPEPE 400x560](https://user-images.githubusercontent.com/118585642/230794136-43609403-ac0e-4372-8734-6b29ee1a5e59.gif)
 ![CASSOPEPE 48x48](https://user-images.githubusercontent.com/118585642/230794163-2be1e21a-0cda-48c8-a121-bd7248932c8a.png)
 ![RAYCBOY RAREPEPE 400x560](https://github.com/tp-7/Gallery/assets/118585642/49c845ae-7a37-49e8-bb24-190aeb28a24e)
@@ -26,3 +26,4 @@
 ![RAYC VVD 48x48](https://github.com/tp-7/Gallery/assets/118585642/71258d0a-9d6e-436e-947e-fb6551dda6b1)
 ![ICEDUNICORN 48x48](https://github.com/tp-7/Gallery/assets/118585642/d33c45be-911a-49f4-b5e5-c52a6369697a)
 ![ICEDUNICORN](https://github.com/tp-7/Gallery/assets/118585642/8b22cb60-d9b0-4133-b3a4-def3f8790822)
+
