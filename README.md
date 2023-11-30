@@ -26,4 +26,7 @@
 ![RAYC VVD 48x48](https://github.com/tp-7/Gallery/assets/118585642/71258d0a-9d6e-436e-947e-fb6551dda6b1)
 ![ICEDUNICORN 48x48](https://github.com/tp-7/Gallery/assets/118585642/d33c45be-911a-49f4-b5e5-c52a6369697a)
 ![ICEDUNICORN](https://github.com/tp-7/Gallery/assets/118585642/8b22cb60-d9b0-4133-b3a4-def3f8790822)
+![FAUXMINER](https://github.com/tp-7/Gallery/assets/118585642/ab056a50-5cd4-4cd2-b0c7-02a1b693c1aa)
+![48x48](https://github.com/tp-7/Gallery/assets/118585642/8128f9a3-fff5-4fca-90a0-6b65a191b18f)
+
 
