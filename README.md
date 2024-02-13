@@ -28,5 +28,6 @@
 ![ICEDUNICORN](https://github.com/tp-7/Gallery/assets/118585642/8b22cb60-d9b0-4133-b3a4-def3f8790822)
 ![FAUXMINER](https://github.com/tp-7/Gallery/assets/118585642/ab056a50-5cd4-4cd2-b0c7-02a1b693c1aa)
 ![48x48](https://github.com/tp-7/Gallery/assets/118585642/8128f9a3-fff5-4fca-90a0-6b65a191b18f)
+![BITRAILSCD](https://github.com/tp-7/Gallery/assets/118585642/7f375130-1e01-4585-aefb-6de847bd14ee)
 
 
